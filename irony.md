@@ -1,1 +1,1 @@
-I loved the first lecture on Computational Intelligence, now I just need to figure out how to program my brain to keep up!
+I loved the first lecture on Computational Intelligence, now I just need to figure out how to program my brain to keep up!!
